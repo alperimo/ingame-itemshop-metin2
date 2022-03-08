@@ -1,0 +1,2 @@
+# ingame-itemshop-metin2
+ 
